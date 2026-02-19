@@ -1,0 +1,66 @@
+# BEYOOOOONDS – フックの法則
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+17世紀、イギリスの物理学者ロバート・フックは、
+ばねをビヨーンと引っ張ったときにはたらく力につい
+て、次のような法則を発見した――
+「力は伸びに比例する!」
+As extension, As extension, so is power
+Let's dance and funk Ha!…
+ぎゅっと心守りたい 強くなりたいんだ
+そんな力がほしい
+ちぢこまったままの ほんとの願い事
+君に打ち明けていい?
+弾性でDance Dance Dance
+君と君と君といっしょに ときどき ひとり
+慣性にBye Bye Bye
+失敗もばねにして
+弾むよパワー 今より伸びたい
+Let's go beyond beyond beyond
+Be yourself
+Jump up 悩みもすべて
+夢へはたらきかけて
+秘めたるパワー 解き放ってみたい
+Let's go beyond beyond beyond
+Be yourself
+まだ 誰も知らない
+未来へ その手 引っ張るよ
+F=kx
+As extension, As extension, so is power
+Let's dance and funk Ha!…
+きっと弱さがなけりゃ 強くなれないんだろう
+それが心の法則
+前へ進むほど 戻りたくなってくる
+後ろ髪に反作用
+弾性でHoo Hoo Hook
+いつもいつもいつも拮抗だ いろんな気持ち
+完全じゃない ない ない
+そんな私たちも
+跳べるのだから リズムに合わせて
+Let's go beyond beyond beyond
+Be yourself
+高く 遠くへ行こう
+繋いだ手と手 離さない
+F=kx
+Be, Beyond, Be yourself
+夢ある ∴(ゆえに)常につりあう対等な you and me
+見えない力を数式に
+弾むリズムでClap
+Come on F=kx Say F=kx
+Bounce… Spring up
+Hook lineの言葉 伝えたい音は
+Let's go beyond beyond beyond
+Be yourself
+まだ見つかってないだけ
+君だけの強いばね Ah
+秘めたるパワー 解き放ってみたい
+Let's go beyond beyond beyond
+Be yourself
+まだ 誰も知らない
+未来へ みんなで その手 引っ張るよ
+F=kx
+As extension, As extension, so is power
+Let's dance and funk Ha!…
+```
